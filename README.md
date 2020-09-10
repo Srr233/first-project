@@ -1,1 +1,1 @@
-![Я](https://vk.com/sr233?z=photo81142274_457247502%2Falbum81142274_0%2Frev)
+![myPhoto](https://user-images.githubusercontent.com/29883511/92777272-b8e08a80-f3a8-11ea-872c-59f3da247f79.jpg)
